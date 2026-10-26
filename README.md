@@ -1,2 +1,2 @@
 # READORA
-You Can Buy Any Book From Any Libarary You Want , Git Your Dreamed Book Now .
+Discover and order your favorite books, bestsellers, and timeless classics online. We deliver the joy of reading right to your doorstep! 
